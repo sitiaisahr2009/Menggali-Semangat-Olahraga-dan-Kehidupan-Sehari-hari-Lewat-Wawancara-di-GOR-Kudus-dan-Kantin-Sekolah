@@ -1,0 +1,2 @@
+# Menggali-Semangat-Olahraga-dan-Kehidupan-Sehari-hari-Lewat-Wawancara-di-GOR-Kudus-dan-Kantin-Sekolah
+— Siswa SMA 1 Kudus melakukan kegiatan wawancara sebagai bagian dari program kokurikuler lintas mata pelajaran yang mencakup Matematika, Pendidikan Agama dan Budi Pekerti, Bahasa Indonesia, dan Pendidikan Jasmani. Wawancara dilakukan dengan dua narasumber berbeda, yaitu seorang pelari di GOR Kudus dan Bapak Kantin sekolah. 
